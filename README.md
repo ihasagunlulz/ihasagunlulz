@@ -9,12 +9,11 @@
 <div align="center">
   
 
-[directory](https://rentry.co/fret)
 
 </div>
 
 <div align="center">
 
-![](https://files.catbox.moe/ojow8t.png)
+![](https://files.catbox.moe/4qlek9.png)
 
 </div>
