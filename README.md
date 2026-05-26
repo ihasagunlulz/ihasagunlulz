@@ -16,6 +16,8 @@
 
 ![](https://files.catbox.moe/luunxe.png)
 
-previously odyssey-duo hi lol
+previously odyssey-duo lol
+
+im not that active anymore but hi
 
 </div>
