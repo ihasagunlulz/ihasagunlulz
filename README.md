@@ -16,8 +16,10 @@
 
 ![](https://files.catbox.moe/luunxe.png)
 
-previously odyssey-duo lol
-
 itrapped yume with awesome aura
 
 </div>
+
+<div align="center">
+  
+maybe [sign ata](https://calebtrapped.atabook.org/) i might reply idk
