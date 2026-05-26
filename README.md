@@ -14,6 +14,6 @@
 
 <div align="center">
 
-![](https://files.catbox.moe/4qlek9.png)
+![](https://files.catbox.moe/luunxe.png)
 
 </div>
