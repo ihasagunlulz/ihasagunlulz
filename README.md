@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=beaverhollow&label=<3&style=flat-square&color=8688bb&base=23264)
+![](https://komarev.com/ghpvc/?username=beaverhollow&label=<3&style=flat-square&color=D56B99&base=23264)
 
 </div>
 
