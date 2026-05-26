@@ -18,6 +18,6 @@
 
 previously odyssey-duo lol
 
-im not that active anymore but hi
+itrapped yume with awesome aura
 
 </div>
