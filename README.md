@@ -22,4 +22,6 @@ itrapped yume with awesome aura
 
 <div align="center">
   
-maybe [sign ata](https://calebtrapped.atabook.org/) i might reply idk
+maybe [sign ata](https://calebtrapped.atabook.org/) i might reply idk perhaps
+
+not adding anyone under 15, it makes us uncomfortable, please respect that!
